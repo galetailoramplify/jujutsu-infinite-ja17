@@ -1,4 +1,4 @@
-#  
+#  rare jujutsu infinite Scripts is the best jujutsu infinite Script, featuring teleport and god mode. Safe and powerful for all your needs.
 
 
 
